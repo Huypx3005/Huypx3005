@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+- 📫 How to reach me: https://www.facebook.com/huypx3005/
+- ⚡ Fun fact: I miss you 🤍
+
 <!--
 **Huypx3005/Huypx3005** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
